@@ -1,0 +1,1 @@
+# estudo-de-desginer-partners
